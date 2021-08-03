@@ -1,0 +1,1 @@
+Estou aprendendo muito com esse treinamento da Gama Academy do programa Start Tech.
